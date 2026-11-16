@@ -8,3 +8,16 @@ Um curso para iniciantes aprenderem a trabalhar com versionamento de código e r
 
 
 
+Pessoas participantes:
+
+Karol
+
+Teo
+
+kkk
+
+kkk
+
+kkkkkkk
+
+curso git 2025
