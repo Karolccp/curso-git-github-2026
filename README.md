@@ -21,3 +21,7 @@ kkk
 kkkkkkk
 
 curso git 2025
+
+Se liga no nosso canal do youtube
+
+teomewhy
